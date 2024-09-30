@@ -1,4 +1,4 @@
-## Hi there 👋
+## Haiii :3c
 
 i'm kinda stupid but yeah
 
